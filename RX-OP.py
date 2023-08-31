@@ -1,4 +1,4 @@
-# ASHUK NAME OF BRAND
+# ASHIK NAME OF BRAND
 # https://www.github.com/RX-ASHIK
 # FUCK YOUR MOM
 # -------------------------------
